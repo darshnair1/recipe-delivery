@@ -1,0 +1,4 @@
+Preheat the oven to 220 C / Gas 7.
+In a bowl, sift together the flour, baking powder and salt then rub in the butter until the mixture resembles breadcrumbs. Add the cheese then gradually stir in just enough milk to bring the mixture together and form a soft dough.
+Turn the mixture out on to a floured board, knead lightly, then roll out to approximately 2.5cm (3/4 in) thick. Cut into rounds using a biscuit cutter then place on a lightly greased baking tray. Brush with egg or milk.
+Bake for 7 to 10 minutes until risen and golden brown. Remove from the oven and serve warm, or allow to cool on a cooling rack before serving.
